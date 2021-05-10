@@ -1,1 +1,1 @@
-# my-dog-3-c-36
+# Virtual-pet-1-2-3-Student-Project
